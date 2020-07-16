@@ -1,1 +1,3 @@
-# Chocochip-Cookies
+# Choco Chip Cookies
+
+ Made with bananas, oats and no added sugar, this chocolate chip oatmeal cookie recipe is quick and guilt-free!
